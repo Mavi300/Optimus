@@ -11,7 +11,7 @@
 <h1 align="center">MAC MD</h1>
  
 ## Join my channel for updates and get free cc
-<a href="https://whatsapp.com/channel/0029VaWGyGVJZg48vgpHBa31" target="_blank">
+<a href="https://whatsapp.com/channel/0029Vaa4ijs2f3EKTSCV8E06" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/ Whatsapp Support Channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
 </p> 
@@ -38,7 +38,7 @@
  <hr>
  
 ## DEVELOPE𝙍S
-[`𝙈𝘼𝘾 𝙏𝙀𝘾𝙃`](https://wa.me/256705036288)
+[`OPTIMUS PRIME`](https://wa.me/message/7WS2RHKP5ASHD1))
 
 [`𝙄𝘽𝙍𝘼𝙃𝙄𝙈 𝙏𝙀𝘾𝙃`](https://www.youtube.com/@ibrahimmdgpt)
 
